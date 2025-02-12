@@ -1,1 +1,2 @@
-# Integrity-and-Anti-Corruption-Course
+## ULRS1032 ASSIGNMENTS🎯
+Kursus ini merangkumi konsep asas rasuah termasuk nilai integriti, antirasuah, bentuk perlakuan rasuah, salah guna kuasa dalam aktiviti seharian dan organisasi serta kaedah pencegahan rasuah. Kes berkaitan rasuah juga dibincangkan. Kaedah pengajaran dilaksanakan dan pembelajaran dalam bentuk ‘pembelajaran berdasarkan pengalaman’ melalui aktiviti individu dan kumpulan. Pada akhir kursus ini, pelajar dapat memahami amalan integriti, konsep rasuah, antirasuah dan salah guna kuasa serta pencegahan rasuah dalam masyarakat dan organisasi.
